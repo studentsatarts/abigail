@@ -13,6 +13,6 @@ butter slime and fluffy slime
 slime
 
 # i also love
-arts-and-craftsand animals 
+arts-and-crafts and animals 
 
 ![good-family-dogs-small](https://user-images.githubusercontent.com/59803854/76459544-63e89b00-63aa-11ea-88c1-aa5af722a5b3.jpg)
